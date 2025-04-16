@@ -1,0 +1,2 @@
+# -rmakgoktug
+Irmak&amp;GoktuDiary
